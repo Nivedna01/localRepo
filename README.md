@@ -1,1 +1,1 @@
-# this is my pratice repoooo
+# this is my practice repoooo
